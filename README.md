@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @mentaldistress
+- 👀 I’m interested in dead
+- 🌱 I’m currently learning how can i dead
